@@ -1,0 +1,1 @@
+I Missed the quiz 1 so, according to you instruction I solved both parts A and B.
